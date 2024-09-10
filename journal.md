@@ -8,3 +8,5 @@ programmed drone to fly around.
 we couldn't do anything yesterday. today we did journal prompt and drone. 
 # September 4th, 2024
 journal prompt I've worked with python before but I like how versatile the language is. we can use it with the cars drones, or even just letters on the screen. 
+# September 9th, 2024
+I think the explanations were fine. maybe some people need a walk through. I didn't have any problems but mainly because I did the same. e thing last year. 
