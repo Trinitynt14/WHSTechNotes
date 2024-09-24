@@ -12,3 +12,5 @@ journal prompt I've worked with python before but I like how versatile the langu
 I think the explanations were fine. maybe some people need a walk through. I didn't have any problems but mainly because I did the same. e thing last year. 
 # September 17, 2024
 Free write! anyway, this week I plan on continuing the code I've been doing on code hs. It's a silly game.
+# september 24, 2024
+It's important because python has strict rules to follow wihtin the guides. So if you spell something wrong or put something in the wrong place it can mess up the whole codes.
