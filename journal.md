@@ -14,3 +14,5 @@ I think the explanations were fine. maybe some people need a walk through. I did
 Free write! anyway, this week I plan on continuing the code I've been doing on code hs. It's a silly game.
 # september 24, 2024
 It's important because python has strict rules to follow wihtin the guides. So if you spell something wrong or put something in the wrong place it can mess up the whole codes.
+# september 30, 2024
+I use social media a lot and i read online. Those things require computer science to even be made. 
