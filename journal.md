@@ -20,3 +20,5 @@ I use social media a lot and i read online. Those things require computer scienc
 I decided to do game developer.They transfer game concepts into actual games. It depends on the game but typically they need progamming obviously, problem solvong skills,teamwork skills, time manegment,among others. In order to do this you need to have atleast a bachelors in software engineering or another related field. You can grow in communicating and programming skills. along with animation if the game calls for it. I like making games so this would be fun to do.
 # october 15, 2024
 For coding when something goes wrong you usually have to wrack your brain for a solution therefore problem solving. A lot of these companies use coding to keep information and stuff so that's one way to understand. The amount of things you can make with code or program definatly enhances creativity.
+# october 25, 2024
+I think ai would be great for solving problem. like showing you steps by steps or suggesting fixes. It would be great. that is until it gives you the wrong answer or even wrong way the solve the steps. Or it straight up cant help.
