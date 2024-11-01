@@ -22,3 +22,5 @@ I decided to do game developer.They transfer game concepts into actual games. It
 For coding when something goes wrong you usually have to wrack your brain for a solution therefore problem solving. A lot of these companies use coding to keep information and stuff so that's one way to understand. The amount of things you can make with code or program definatly enhances creativity.
 # october 25, 2024
 I think ai would be great for solving problem. like showing you steps by steps or suggesting fixes. It would be great. that is until it gives you the wrong answer or even wrong way the solve the steps. Or it straight up cant help.
+# october 28, 2024
+I think when it comes to voting counting the ballets would definently be something a program can do. of course the machines can always miscount or be hacked but it would be a helpful program
