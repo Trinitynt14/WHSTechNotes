@@ -26,3 +26,5 @@ I think ai would be great for solving problem. like showing you steps by steps o
 I think when it comes to voting counting the ballets would definently be something a program can do. of course the machines can always miscount or be hacked but it would be a helpful program
 # november 4,2024
 I think it's because you never really know who can see what you publish. It can put you in danger unintetionally.You can always use vpns or use secure networks or sites.oh yeah i defintially have. I accidently unintentially posted what school I go to so now i always double check my post.You can always just limit what information i give out.
+# november 12,2024
+A current event happening right now is the election. There's a lot going on that I think require problem solving skills. Like they're recounting some balets because things burned down and votes weren't counted.I think it'd be good if they stored this data in a cloud like automatically or something that way if things like this happen it wouldnt take so long to count lost votes.
