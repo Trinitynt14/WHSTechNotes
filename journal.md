@@ -30,3 +30,5 @@ I think it's because you never really know who can see what you publish. It can 
 A current event happening right now is the election. There's a lot going on that I think require problem solving skills. Like they're recounting some balets because things burned down and votes weren't counted.I think it'd be good if they stored this data in a cloud like automatically or something that way if things like this happen it wouldnt take so long to count lost votes.
 # november 19, 2024
 I think it def makes packaging fatser to get food out faster and it makes food better and could keep it fresher for longer. I think it's bad to rely on because if somethin gbreals we could be doomed or if something were to fall into the machine without knowledge you're also cooked.
+# december 2, 2024
+Ai has been updated to discover and realize different audios images and videos. I think this is pretty cool because you can now analyze these things on a different level. I can just imagine how it improves police investigation.
