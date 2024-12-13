@@ -32,3 +32,6 @@ A current event happening right now is the election. There's a lot going on that
 I think it def makes packaging fatser to get food out faster and it makes food better and could keep it fresher for longer. I think it's bad to rely on because if somethin gbreals we could be doomed or if something were to fall into the machine without knowledge you're also cooked.
 # december 2, 2024
 Ai has been updated to discover and realize different audios images and videos. I think this is pretty cool because you can now analyze these things on a different level. I can just imagine how it improves police investigation.
+# december 9, 2024
+Brain rot to me are just words that are very popular for dumb reasons and they just affect everyones brain. Honestly media doesnt make me feel bad or good I just kind of doomscroll. If anything I guess negative depending on what I find. Slop is one I don't hear often but lore is one I see a lot. I use lore myself a bunch too. No, no matter what you do or where you are on media you'll find brainrot. it's called brainwhat because it infects you.
+
