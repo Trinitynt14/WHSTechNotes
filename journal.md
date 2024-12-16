@@ -34,4 +34,5 @@ I think it def makes packaging fatser to get food out faster and it makes food b
 Ai has been updated to discover and realize different audios images and videos. I think this is pretty cool because you can now analyze these things on a different level. I can just imagine how it improves police investigation.
 # december 9, 2024
 Brain rot to me are just words that are very popular for dumb reasons and they just affect everyones brain. Honestly media doesnt make me feel bad or good I just kind of doomscroll. If anything I guess negative depending on what I find. Slop is one I don't hear often but lore is one I see a lot. I use lore myself a bunch too. No, no matter what you do or where you are on media you'll find brainrot. it's called brainwhat because it infects you.
-
+# december 16, 2024
+Im so excited for winter break. I love sitting in bed doing nothing and thinking about nothing.
