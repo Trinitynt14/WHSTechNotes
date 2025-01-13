@@ -38,3 +38,5 @@ Brain rot to me are just words that are very popular for dumb reasons and they j
 Im so excited for winter break. I love sitting in bed doing nothing and thinking about nothing.
 # january 8, 2025
 I enjoy the freedom we have in class when it comes to creating code. especially if I don't want to some days then I can take a brain break. I don't really know I think I wanna dive more in images in code for my personal projects. I'm not really interested in certifications since I'm not pursuing computer science after high school. 
+# january 13, 2025
+the shift is pretty bad. tech is already a pretty competitive field and adding ai to the mix doesn't not make this better. I think ai can help find problems in code or something but other than that ai can be really strict with limits making it hard to use. gotta find a job that's good and ready for me. 
