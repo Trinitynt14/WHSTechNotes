@@ -42,3 +42,10 @@ I enjoy the freedom we have in class when it comes to creating code. especially 
 the shift is pretty bad. tech is already a pretty competitive field and adding ai to the mix doesn't not make this better. I think ai can help find problems in code or something but other than that ai can be really strict with limits making it hard to use. gotta find a job that's good and ready for me. 
 # january 22, 2025
 I think the government being able to interact with the users apps can negativly impact techonology. People feel like their favorite apps could just be taken at any moment. Well even though tiktok showd what they could I think you can just show that this imformation is being put back to the user and not stored anywhere else. I would instead update terms and agreements and make them acceptable again in order to ensure app safety instead. I need to make people more aware of the data my app is collecting and where it goes into the app/code.
+# january 27, 2025
+    | Name     | Car | Mistake |
+    | :------- | :-- | :------ |
+    | Jimmy    | Honda Civic|  Drilled hole in gas tank|
+    | Kayla    | GMC Sierra    |Fixed wrong problem         |
+    | Bart     | Toyotta corolla    | Left stains on carpet        |
+    | Harrison | subaru forester    | Left oil cap off        |
