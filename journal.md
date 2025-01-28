@@ -43,9 +43,9 @@ the shift is pretty bad. tech is already a pretty competitive field and adding a
 # january 22, 2025
 I think the government being able to interact with the users apps can negativly impact techonology. People feel like their favorite apps could just be taken at any moment. Well even though tiktok showd what they could I think you can just show that this imformation is being put back to the user and not stored anywhere else. I would instead update terms and agreements and make them acceptable again in order to ensure app safety instead. I need to make people more aware of the data my app is collecting and where it goes into the app/code.
 # january 27, 2025
-    | Name     | Car | Mistake |
-    | :------- | :-- | :------ |
-    | Jimmy    | Honda Civic|  Drilled hole in gas tank|
-    | Kayla    | GMC Sierra    |Fixed wrong problem         |
-    | Bart     | Toyotta corolla    | Left stains on carpet        |
-    | Harrison | subaru forester    | Left oil cap off        |
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    | Honda Civic|  Drilled hole in gas tank|
+| Kayla    | GMC Sierra    |Fixed wrong problem         |
+| Bart     | Toyotta corolla    | Left stains on carpet        |
+| Harrison | subaru forester    | Left oil cap off        |
