@@ -60,3 +60,5 @@ If you have a weak system hacking or taking it over is also really easy. It's be
 | Hexagon  |   brown    |     6  |
 | Triangle |    purple   |   4    |
 | Octagon  |   red    |   3    |
+# february 18, 2025
+I learned that the multiple for staff is staves. I was watching this series i like and they reffered to a bunch of staffs as staves and i googled it to find out what it means.
