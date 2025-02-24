@@ -62,3 +62,7 @@ If you have a weak system hacking or taking it over is also really easy. It's be
 | Octagon  |   red    |   3    |
 # february 18, 2025
 I learned that the multiple for staff is staves. I was watching this series i like and they reffered to a bunch of staffs as staves and i googled it to find out what it means.
+# february 24, 2025
+I think technology could help make that connection between eachother. Taking an analysis on commonly used slang terms by analysing videos or something else could work. The benefits is having an understanding of something if it's or bad. Like if something is a threat for an investigation. But at the same time it's weird having the other adults using our slang. Most may not like it.
+
+I don't schools need to learn slang. It just wouldn't benefit them atleast now. Kids use slang just to shorten words or due to pop culture so there's no need to do so on less you really wanna understand some of it. Some of the slang we say could have an opposite reaction. I know when I use slang most of the time my parents think it's bad but most of the time it's not. So it's just a miscommunication if they dont understand.
