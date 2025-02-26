@@ -52,7 +52,7 @@ I think the government being able to interact with the users apps can negativly 
 # january 3, 2025
 I think technology could be used to double check safety factors like making sure engines are working properly for example. I think it could also help tripple checking code for take off. With air traffic control systems if you use a sensor it's easy to tell if a collision or something similar is going to happen.
 If you have a weak system hacking or taking it over is also really easy. It's best to have a strong system that can constantly search for bugs so it can't be compromised or otherwise.
-# january 11, 2025
+# february 11, 2025
 | Shape    | Color | Count |
 | -------- | ----- | ----- |
 | Circle   |  green     |   7    |
