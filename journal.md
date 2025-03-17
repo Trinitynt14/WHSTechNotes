@@ -74,3 +74,7 @@ I don't schools need to learn slang. It just wouldn't benefit them atleast now. 
 | Thorne  |    invisibility   |      underwater rescue     |
 | Silver  |   mind control    |    retrieve stolen goods       |
 | Tangier |  shapeshifting     |    extract prisoner       |
+# march 17, 2025
+For the most part I was scrolling on social media the whole time. I was just entertained since I couldn't do much else. My app was crushing a bunch (I need to update it) so app functionalty maybe.
+
+Something else I used was my computer. For the most part I used it to play games but I also started writing stories in it aswell. The games could relate to coding and app development.
