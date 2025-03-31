@@ -80,3 +80,9 @@ For the most part I was scrolling on social media the whole time. I was just ent
 Something else I used was my computer. For the most part I used it to play games but I also started writing stories in it aswell. The games could relate to coding and app development.
 # march 24, 2025
 When it come to techonology for this march madness I think its helpful. The ai or statistics you use are a very good way to make an accurate guess. It's a helpful way to get your information and process it at a fast pace.
+# march 31, 2025
+1. I'm feeling fine actaully im pretty confident in my ability to pass so im chilling
+2. Lowkey my history class. She gives too many assignments
+3. I usually just eat or sleep it off
+4. I'm just trying to pass so imma keep doing what i'm sdoing
+5. My friends. they're really good listeners.
