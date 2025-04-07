@@ -86,3 +86,5 @@ When it come to techonology for this march madness I think its helpful. The ai o
 3. I usually just eat or sleep it off
 4. I'm just trying to pass so imma keep doing what i'm sdoing
 5. My friends. they're really good listeners.
+# april 7, 2025
+Ai can provide you a study guide or can even walk you through how to solve problems. thats what i use it for sometimes.
