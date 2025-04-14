@@ -88,3 +88,6 @@ When it come to techonology for this march madness I think its helpful. The ai o
 5. My friends. they're really good listeners.
 # april 7, 2025
 Ai can provide you a study guide or can even walk you through how to solve problems. thats what i use it for sometimes.
+# april 14, 2025
+I feel like this could be harmful. Obviously if you band things kids are going to find sneaky ways to do it anyway which i feel like could make a situation worse. Plus social media is how a lot of students stay connected together. Of course there's cyber bullying but there's a reason block buttons exist in the first place.
+If this was implemented here (which i guess it technically is) I feel like students wouldn't care. Personally, depending on how strictly the rule is enforced I don't think I'd listen to it. I need to listen to music,look at updates for theater, use pinterest,or text my parents. I rely on my phone too much and need to use it constantly.
