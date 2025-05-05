@@ -97,3 +97,6 @@ If this was implemented here (which i guess it technically is) I feel like stude
 | Sally    |    chocolate    |    graduation      |   35.00    | 
 | Michael  |   Vanilla     |    Farewell party      |   37.00    | 
 | Emma     |     carrot   |    birthday party      |     39.00  | 
+# may 5, 2025
+Realistically I don't think 100 men are beating one gorilla. Like of course if there's weapons included there may be a chance but that depends. If you just think of it logically with the strength of a gorilla and how unhinged it would be compared to humans thinking process, they just aren't winning.
+Honestly I think it's stupid how easily things like this spread. Like people are quick to spread the wrong information or things that don't really matter. I feel like people just post things hoping to get a click of attention.
