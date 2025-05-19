@@ -102,3 +102,5 @@ Realistically I don't think 100 men are beating one gorilla. Like of course if t
 Honestly I think it's stupid how easily things like this spread. Like people are quick to spread the wrong information or things that don't really matter. I feel like people just post things hoping to get a click of attention.
 # may 14, 2025
 I think people should ignore the trends honestly, people just find them funny and decide to do them, It's so stupid.I feel like regardless people should not even take the risk of destroying property when it doesn't belong to you. People need to learn actions have consequences. It's needed since everyone think it's a joke.
+# may 19, 2025
+Im so ready for summer. I'm ready to sleep in and just relax. Plus I'm sick of these kids school stresses me out.
